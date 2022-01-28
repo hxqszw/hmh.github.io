@@ -1,4 +1,7 @@
-# www.bige.pw
-黑魔盒网址发布页
-最新网址 heimohe.cc
-原网址 heimohe.cn已失效
+<p>黑魔盒最新地址发布页：<br>
+<a href="http://cjkh.cc">http://heimohe.cc</a>
+</p>
+<p>历史域名:<br>
+hwimohe.cn<br>
+</p>
+
